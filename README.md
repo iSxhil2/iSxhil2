@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iSxhil2
+- 👀 I’m interested in ... Anything that will make me money.
+- 🌱 I’m currently learning ... Anything that will make me money.
+- 💞️ I’m looking to collaborate on ... Anything that will make me money.
+- 📫 How to reach me ... email me at Sahilsingh.contact@gmail.com
